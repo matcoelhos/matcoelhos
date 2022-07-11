@@ -2,7 +2,7 @@
 
 #### 🎓 Control and Automation Engineer
 #### 🎓  M.Sc. in Computer Sciences
-#### 🎓  Ph.D. Student in Computer Sciences
+#### 🎓  Ph.D. Candidate in Computer Sciences
 
 ##
 ### 📈 Stats
